@@ -25,4 +25,4 @@ Studio: Sharp-Angle
 
 
 
-No Coryright
+© 2026 Sharp Angle Studio. All rights reserved.
